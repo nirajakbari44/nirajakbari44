@@ -52,8 +52,8 @@ As a full-time freelancer, I’m dedicated to delivering top-notch projects that
 
 ## 📬 Let's Connect
 
-- 📧 **Email:** [vmoradiya2001@gmail.com](mailto:nirajakbari7877@gmail.com)
-- 💼 **LinkedIn:** [linkedin.com/in/virajmoradiya](https://linkedin.com/in/nirajakbari)
+- 📧 **Email:** [nirajakbari7877@gmail.com](mailto:nirajakbari7877@gmail.com)
+- 💼 **LinkedIn:** [linkedin.com/in/nirajakbari](https://linkedin.com/in/nirajakbari)
 - 💻 **Hire me on Upwork:** [upwork.com/freelancers/flutterappdeveloper](https://www.upwork.com/freelancers/~01de65e01e29ee6c70?mp_source=share)
 - 🧑‍💻 **Hire me on Fiverr:** [fiverr.com/niraj_akbari](https://www.fiverr.com/akbariniraj?public_mode=true)
 
